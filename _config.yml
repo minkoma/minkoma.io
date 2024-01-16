@@ -8,27 +8,26 @@
 url: https://point-theme.netlify.app
 
 # for header and meta tags
-title: Point Theme 🎯
-description: description for search engines and social media cards
+title: Minko Ma
+description: I love hugging my little BEAR!!!
 
 # set external to true if linking outside your website
 # for internal, make sure to include preceding slash
-nav-links:
-  - name: Home
-    url: /
-    external: false
-  - name: Blog
-    url: /blog
-    external: false
-  - name: Search Engine
-    url: https://duckduckgo.com
-    external: true
+# nav-links:
+#   - name: Home
+#     url: /
+#     external: false
+#   - name: Blog
+#     url: /blog
+#     external: false
+#   - name: Search Engine
+#     url: https://duckduckgo.com
+#     external: true
 
 # for the homepage image + big text next to it
-greeting_image: /assets/me.jpg
+greeting_image: /assets/me.png
 # 100-200 characters recommended
-greeting_text: Hey, I'm Point Theme! I'm a Jekyll theme for personal websites that are short & to the point. Fork it on Github, customize the styles and options, and enjoy!
-
+greeting_text: Minko Ma
 # show blog post excerpts on blog page
 show_excerpts: false
 excerpt_word_count: 70
