@@ -62,4 +62,6 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 ## *Fun Facts About Me* 🤫
 * I am a twin and I have a twin sister 2 minutes younger than me but 10 cm taller than me.
 * I don't sweat.
+* Dark beige is my favorite color.
+* I don't like drinking water but I'm a big fan of collecting water bottles.
 * I can sleep 12+ hours a day on weekends.
