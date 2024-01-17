@@ -3,7 +3,7 @@ Hi! I am Yitian (Minko) Ma. I am currently a senior student double majoring in [
 
 As a motivated and creative individual with a great passion and background in digital storytelling and social media marketing, I am currently seeking a job opportunity in the related field. I am driven to develop professional skills, gain hands-on experience, and exhibit a strong desire for continuous learning and growth!
 
-My earliest starting time for a full-time role will be Jun 2024, as I will be graduating.
+My earliest starting time for a full-time role is Jun 2024, as I will be graduating. However, I am more than happy to begin with a part-time or internship position now if that better aligns with the company's immediate needs.
 
 Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6xrcNJoNwyxmOWYLj2h-8s7bKufqQRAZhfU/edit), email me at [minkoma2002@gamil.com](minkoma2002@gmail.com), and connect me on [LinkedIn](https://www.linkedin.com/in/minko-ma-281519255/)!
 
@@ -13,7 +13,7 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 * Producing compelling video content through multiple channels to give alumni, students, parents, and supporters an “inside-look” at UC San Diego's rich campus life, helping to educate the UC San Diego community about the impact and importance of giving, and inspire philanthropic giving.
 * Participate in all aspects of video production to produce a steady stream of video projects, including scripting, storyboarding, filming, editing individual and/or team videos.
 * Develop fundraising initiatives to qualify, identify, and solicit special gift prospects with an emphasis on $1,000 to $25,000. Raised an impressive $1,593,858 in donations during [2023 UCSD's Day of Caring](https://ucare.ucsd.edu/pages/home-2308).
-* Manage the school [official Instagram account](https://www.instagram.com/ucsdstorytellers) on Sprout Social, posting video content, monitor and analyze data.
+* Manage the school's official [Instagram account](https://www.instagram.com/ucsdstorytellers) using Sprout Social, posting video content, monitor and analyze data.
 
 **MARKETING ASSOCIATE & CAMPUS AMBASSADOR**<br>
 [Goodhunt](https://www.goodhunt.com/gh-page/home#about) | Oct. 2023  – Jan. 2024
@@ -43,7 +43,9 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 * [Why I love San Diego❤️](https://www.instagram.com/p/Co8DVJmDtAN/)
 
 * [Favorite Study Spots On Campus🏫](https://www.instagram.com/p/Cn7oQQUD6-c/)
+
 * More to come!!
+
 
 
 ## *Hobbies* 😸
