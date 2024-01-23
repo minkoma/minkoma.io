@@ -1,11 +1,11 @@
 ## About 👋🏼
-Hi! I am Yitian (Minko) Ma. I am currently a senior student double majoring in [Communication](https://communication.ucsd.edu/) and [International Business](https://isp.ucsd.edu/) at [UC San Diego](https://ucsd.edu/). I came from Beijing, China🇨🇳.
+Hi! I am Yitian (Minko) Ma. I am currently a senior double majoring in [Communication](https://communication.ucsd.edu/) and [International Business](https://isp.ucsd.edu/) at [UC San Diego](https://ucsd.edu/). I came from Beijing, China🇨🇳.
 
 As a motivated and creative individual with a great passion and background in digital storytelling and social media marketing, I am currently seeking a job opportunity in the related field. I am driven to develop professional skills, gain hands-on experience, and exhibit a strong desire for continuous learning and growth!
 
 My earliest starting time for a full-time role is Jun 2024, as I will be graduating. However, I am more than happy to begin with a part-time or internship position now if that better aligns with the company's immediate needs.
 
-Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6xrcNJoNwyxmOWYLj2h-8s7bKufqQRAZhfU/edit), email me at [minkoma2002@gamil.com](minkoma2002@gmail.com), and connect me on [LinkedIn](https://www.linkedin.com/in/minko-ma-281519255/)!
+Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6xrcNJoNwyxmOWYLj2h-8s7bKufqQRAZhfU/edit), email me at **minkoma2002@gmail.com**, and connect me on [LinkedIn](https://www.linkedin.com/in/minko-ma-281519255/)!
 
 ## Experience 💁🏻‍♀️
 **UCSD STUDENT STORYTELLER** <br>
@@ -57,7 +57,7 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 * Ballet🩰
 * Sudoku🔢
 * Chinese Calligraphy🖊️
-* Staying with my ShirlleMay🧸
+* Cuddle my ShellieMay🧸
 
 ## *Fun Facts About Me* 🤫
 * I am a twin and I have a twin sister 2 minutes younger than me but 10 cm taller than me.
