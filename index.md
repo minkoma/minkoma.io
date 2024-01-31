@@ -16,10 +16,15 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 * Manage the school's official [Instagram account](https://www.instagram.com/ucsdstorytellers) using Sprout Social, posting video content, monitor and analyze data.
 
 **MARKETING ASSOCIATE & CAMPUS AMBASSADOR**<br>
-[Goodhunt](https://www.goodhunt.com/gh-page/home#about) | Oct. 2023  – Jan. 2024
+[Goodhunt](https://www.goodhunt.com/gh-page/home#about) | Hybird | Oct. 2023  – Jan. 2024
 * Conduct Beta test focus group, collect and provide feedback, marketing strategies, and program effectiveness to help the launch of the new app continuously improve.
 * Arrange a booth at campus events to showcase the product, incentivize students to recommend the product to their peers through offering rewards and exclusive virtual benefits for successful referrals.
 * Gain valuable experience in marketing, event planning, communication, and leadership.
+
+**Teaching Assistant**<br>
+[TestDaily](https://www.testdaily.cn/) | Remote | Seasonal role since Sep. 2020
+* Instructed TOEFL (four subjects), macroeconomics, and College academic writing courses to students at TestDaily, a popular online education institution in China.
+* Responsible for teaching TA classes, answering questions, grading homework, providing feedback, and sharing personal study experiences to facilitate students’ learning and receiving praise for exceptional performance.
 
 ## **Video Portfolio** 🎞️
 * [Chinese New Year Vlog🥳](https://www.instagram.com/p/CnxFVnZJ-c2/)
