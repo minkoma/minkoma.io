@@ -21,9 +21,9 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 * Arrange a booth at campus events to showcase the product, incentivize students to recommend the product to their peers through offering rewards and exclusive virtual benefits for successful referrals.
 * Gain valuable experience in marketing, event planning, communication, and leadership.
 
-**Teaching Assistant**<br>
+**TEACHING ASSISTANT**<br>
 [TestDaily](https://www.testdaily.cn/) | Remote | Seasonal role since Sep. 2020
-* Instructed TOEFL (four subjects), macroeconomics, and College academic writing courses to students at TestDaily, a popular online education institution in China.
+* Instructed TOEFL (four subjects), macroeconomics, and College academic writing courses to 200+ students at TestDaily, a popular education institution in China.
 * Responsible for teaching TA classes, answering questions, grading homework, providing feedback, and sharing personal study experiences to facilitate students’ learning and receiving praise for exceptional performance.
 
 ## **Video Portfolio** 🎞️
