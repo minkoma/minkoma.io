@@ -73,7 +73,7 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 
 
 ## *Hobbies* 😸
-* Try different vanilla latte☕️ and boba milk tea🧋
+* Try different vanilla latte☕️ and jasmine milk tea🧋
 * Videography & photography📷
 * Cooking and eating all kinds of noodles🍜
 * Traveling ✈️ (have been to 15+ countries!)
