@@ -1,19 +1,27 @@
 ## About 👋🏼
-Hi! I am Yitian (Minko) Ma. I am currently a senior double majoring in [Communication](https://communication.ucsd.edu/) and [International Business](https://isp.ucsd.edu/) at [UC San Diego](https://ucsd.edu/). I came from Beijing, China🇨🇳.
+Hi! I am Yitian (Minko) Ma. I am a recent graduate holding a bachelor's degree with a double major in [Communication](https://communication.ucsd.edu/) and [International Studies- International Business](https://isp.ucsd.edu/) from [UC San Diego](https://ucsd.edu/). I came from Beijing, China🇨🇳.
 
 As a motivated and creative individual with a great passion and background in digital storytelling and social media marketing, I am currently seeking a job opportunity in the related field. I am driven to develop professional skills, gain hands-on experience, and exhibit a strong desire for continuous learning and growth!
 
-My earliest starting time for a full-time role is Jun 2024, as I will be graduating. However, I am more than happy to begin with a part-time or internship position now if that better aligns with the company's immediate needs.
+I am currently open to new full-time job opportunities with a flexible start date.
 
 Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6xrcNJoNwyxmOWYLj2h-8s7bKufqQRAZhfU/edit), email me at **minkoma2002@gmail.com**, and connect me on [LinkedIn](https://www.linkedin.com/in/minko-ma-281519255/)!
 
 ## Experience 💁🏻‍♀️
 **UCSD STUDENT STORYTELLER** <br>
-[UC San Diego Annual Giving](https://giving.ucsd.edu/) | La Jolla, CA | Oct. 2022 – Present
+[UC San Diego Annual Giving](https://giving.ucsd.edu/) | La Jolla, CA | Oct. 2022 – June. 2024
 * Producing compelling video content through multiple channels to give alumni, students, parents, and supporters an “inside-look” at UC San Diego's rich campus life, helping to educate the UC San Diego community about the impact and importance of giving, and inspire philanthropic giving.
 * Participate in all aspects of video production to produce a steady stream of video projects, including scripting, storyboarding, filming, editing individual and/or team videos.
 * Develop fundraising initiatives to qualify, identify, and solicit special gift prospects with an emphasis on $1,000 to $25,000. Raised an impressive $1,593,858 in donations during [2023 UCSD's Day of Caring](https://ucare.ucsd.edu/pages/home-2308).
+* Since March 2024, focused on creating alumni-targeted content, producing event info videos to invite Triton alumni to register and participate. Attended various alumni-related regional events, including the UCSD 45th Annual Alumni Awards in New York, and made recap videos and conducted interviews with alumni and honorees.
 * Manage the school's official [Instagram account](https://www.instagram.com/ucsdstorytellers) using Sprout Social, posting video content, monitor and analyze data.
+
+**MARKETING ASSOCIATE**<br>
+[Asian Egg Bank](https://www.asianeggbank.com/) | La Jolla, CA | Apr. 2024  – June. 2024
+* Cultivating a vibrant donor community through engaging social media content and event organization, leveraging digital marketing tools such as Later and Canva to create compelling content, increase brand awareness, generate leads, and drive conversion
+* Implementing SEO strategies to expand the egg donor database and enhance online presence, ensuring maximum visibility to potential donors.
+* Executing targeted email marketing campaigns using Keap and Canva to effectively reach potential donors and sustain donor engagement over time.
+* Foster and nurture relationships with both current and prospective egg donors, offering personalized support and guidance at every stage of the donation process.
 
 **MARKETING ASSOCIATE & CAMPUS AMBASSADOR**<br>
 [Goodhunt](https://www.goodhunt.com/gh-page/home#about) | Hybird | Oct. 2023  – Jan. 2024
@@ -27,11 +35,20 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 * Responsible for teaching TA classes, answering questions, grading homework, providing feedback, and sharing personal study experiences to facilitate students’ learning and receiving praise for exceptional performance.
 
 ## **Video Portfolio** 🎞️
-* [Chinese New Year Vlog🥳](https://www.instagram.com/p/CnxFVnZJ-c2/)
 
 * [Spend A Day With Me Video Project☀️](https://youtu.be/q2FydPe0dEs?si=Hiq64SotP45n8kg3)
 
+* [Chinese New Year Vlog🥳](https://www.instagram.com/p/CnxFVnZJ-c2/)
+
+* [Graduation Video🎓☀️](https://drive.google.com/file/d/1-7BBD84FGpq1QqEipjc3NewutDOL_z6-/view?usp=sharing)
+
+* [UCSD New York Alumni Awards Recap📹☀️](https://www.instagram.com/p/C5o5H6OPJcL/)
+
 * [Time At Home- China Vlog🇨🇳](https://www.instagram.com/p/Czt-H4xPql_/)
+
+* [Universal Hollywood with Sixth College🎢](https://www.instagram.com/p/C7hfQv7Pga-/)
+
+* [UCSD Farmers' Market😋](https://www.instagram.com/p/C5RECJtOtdj/)
 
 * [Skydiving on Thanksgiving🪂](https://www.instagram.com/p/C1C-v7sPo2n/)
 
@@ -39,11 +56,13 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 
 * [School’s Triton 5K Event Recap🏃](https://www.instagram.com/p/CyyrS56P3Up/)
 
-* [Triton 5K Event Invitation Videos🙌🏻](https://www.instagram.com/p/CylwhxduHmM/)
+* [Campus Currents🎤](https://www.instagram.com/p/C7FA0LAPYn7/)
 
 * [School’s Men Basketball Game Recap Video🏀](https://www.instagram.com/p/Cqt1l_DJgZ7/)
 
-* [UCSD Sixth College Provost Interview🎤](https://www.youtube.com/watch?v=qGBwtQJhGSU&t=18s)
+* [Triton 5K Event Invitation Videos🙌🏻](https://www.instagram.com/p/CylwhxduHmM/)
+
+* [Sixth College Provost Interview🎤](https://www.youtube.com/watch?v=qGBwtQJhGSU&t=18s)
 
 * [Why I love San Diego❤️](https://www.instagram.com/p/Co8DVJmDtAN/)
 
