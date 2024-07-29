@@ -44,6 +44,8 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 
 * [UCSD New York Alumni Awards Recap📹](https://www.instagram.com/p/C5o5H6OPJcL/)
 
+* [Short Documentary Project: Taste of Home- Story of Fan Fan🍜](https://drive.google.com/file/d/1fqWAGMzZHsRLnFVDzHd3WNh04QCnRGBP/view?usp=sharing)
+
 * [Time At Home- China Vlog🇨🇳](https://www.instagram.com/p/Czt-H4xPql_/)
 
 * [Universal Hollywood with Sixth College🎢](https://www.instagram.com/p/C7hfQv7Pga-/)
