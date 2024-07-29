@@ -1,5 +1,5 @@
 ## About 👋🏼
-Hi! I am Yitian (Minko) Ma. I am a recent graduate with a bachelor's degree in [Communication](https://communication.ucsd.edu/) and [International Studies- International Business](https://isp.ucsd.edu/) from [UC San Diego](https://ucsd.edu/). I'm originally from Beijing, China🇨🇳.
+Hi! I am Yitian Ma, you can call me Minko. I am a recent graduate with a bachelor's degree in [Communication](https://communication.ucsd.edu/) and [International Studies- International Business](https://isp.ucsd.edu/) from [UC San Diego](https://ucsd.edu/). I'm originally from Beijing, China🇨🇳.
 
 As a motivated and creative individual with a great passion and background in digital storytelling and social media marketing, **I am currently seeking full-time job opportunities in the related field with a flexible start date**. I am driven to develop professional skills, gain hands-on experience, and exhibit a strong desire for continuous learning and growth!
 
@@ -7,7 +7,7 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 
 ## Experience 💁🏻‍♀️
 **UCSD STUDENT STORYTELLER** <br>
-[UC San Diego Annual Giving](https://giving.ucsd.edu/)[UCSD Alumni Department](https://alumni.ucsd.edu/) | La Jolla, CA | Oct. 2022 – June. 2024
+[UC San Diego Annual Giving](https://giving.ucsd.edu/)& [UCSD Alumni Department](https://alumni.ucsd.edu/) | La Jolla, CA | Oct. 2022 – June. 2024
 * Producing compelling video content through multiple channels to give alumni, students, parents, and supporters an “inside-look” at UC San Diego's rich campus life, helping to educate the UC San Diego community about the impact and importance of giving, and inspire philanthropic giving.
 * Participate in all aspects of video production to produce a steady stream of video projects, including scripting, storyboarding, filming, editing individual and/or team videos.
 * Develop fundraising initiatives to qualify, identify, and solicit special gift prospects with an emphasis on $1,000 to $25,000. Raised an impressive $1,593,858 in donations during [2023 UCSD's Day of Caring](https://ucare.ucsd.edu/pages/home-2308).
