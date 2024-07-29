@@ -17,7 +17,7 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 * Manage the school's official [Instagram account](https://www.instagram.com/ucsdstorytellers) using Sprout Social, posting video content, monitor and analyze data.
 
 **MARKETING ASSOCIATE**<br>
-[Asian Egg Bank](https://www.asianeggbank.com/) | La Jolla, CA | Apr. 2024  – June. 2024
+[Asian Egg Bank](https://www.asianeggbank.com/) | La Jolla, CA | Apr. 2024 – June. 2024
 * Cultivating a vibrant donor community through engaging social media content and event organization, leveraging digital marketing tools such as Later and Canva to create compelling content, increase brand awareness, generate leads, and drive conversion
 * Implementing SEO strategies to expand the egg donor database and enhance online presence, ensuring maximum visibility to potential donors.
 * Executing targeted email marketing campaigns using Keap and Canva to effectively reach potential donors and sustain donor engagement over time.
@@ -40,9 +40,9 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 
 * [Chinese New Year Vlog🥳](https://www.instagram.com/p/CnxFVnZJ-c2/)
 
-* [Graduation Video🎓☀️](https://drive.google.com/file/d/1-7BBD84FGpq1QqEipjc3NewutDOL_z6-/view?usp=sharing)
+* [Graduation Recap Video🎓](https://drive.google.com/file/d/1-7BBD84FGpq1QqEipjc3NewutDOL_z6-/view?usp=sharing)
 
-* [UCSD New York Alumni Awards Recap📹☀️](https://www.instagram.com/p/C5o5H6OPJcL/)
+* [UCSD New York Alumni Awards Recap📹](https://www.instagram.com/p/C5o5H6OPJcL/)
 
 * [Time At Home- China Vlog🇨🇳](https://www.instagram.com/p/Czt-H4xPql_/)
 
