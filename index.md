@@ -1,9 +1,7 @@
 ## About 👋🏼
-Hi! I am Yitian (Minko) Ma. I am a recent graduate holding a bachelor's degree with a double major in [Communication](https://communication.ucsd.edu/) and [International Studies- International Business](https://isp.ucsd.edu/) from [UC San Diego](https://ucsd.edu/). I came from Beijing, China🇨🇳.
+Hi! I am Yitian (Minko) Ma. I am a recent graduate with a bachelor's degree in [Communication](https://communication.ucsd.edu/) and [International Studies- International Business](https://isp.ucsd.edu/) from [UC San Diego](https://ucsd.edu/). I'm originally from Beijing, China🇨🇳.
 
-As a motivated and creative individual with a great passion and background in digital storytelling and social media marketing, I am currently seeking a job opportunity in the related field. I am driven to develop professional skills, gain hands-on experience, and exhibit a strong desire for continuous learning and growth!
-
-I am currently open to new full-time job opportunities with a flexible start date.
+As a motivated and creative individual with a great passion and background in digital storytelling and social media marketing, I am currently seeking full-time job opportunities in the related field with a flexible start date. I am driven to develop professional skills, gain hands-on experience, and exhibit a strong desire for continuous learning and growth!
 
 Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6xrcNJoNwyxmOWYLj2h-8s7bKufqQRAZhfU/edit), email me at **minkoma2002@gmail.com**, and connect me on [LinkedIn](https://www.linkedin.com/in/minko-ma-281519255/)!
 
