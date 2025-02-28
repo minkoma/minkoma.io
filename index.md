@@ -68,9 +68,6 @@ I am a motivated and creative individual with a great passion and background in 
 
 * More to come!!
 
-## **Graphic Design** ✍️
-
-
 
 ## *Hobbies* 😸
 * Try different vanilla latte☕️ and jasmine milk tea🧋
