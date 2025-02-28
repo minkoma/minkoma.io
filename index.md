@@ -1,9 +1,7 @@
 ## About 👋🏼
-Hi! I am Yitian Ma, you can call me Minko. I am a recent graduate with a bachelor's degree in [Communication](https://communication.ucsd.edu/) and [International Studies- International Business](https://isp.ucsd.edu/) from [UC San Diego](https://ucsd.edu/). I'm originally from Beijing, China🇨🇳.
+Hi! I am Yitian Ma, and I also go by Minko. I am a recent graduate with a bachelor's degree in [Communication](https://communication.ucsd.edu/) and [International Studies- International Business](https://isp.ucsd.edu/) from [UC San Diego](https://ucsd.edu/). I'm originally from Beijing, China🇨🇳.
 
-As a motivated and creative individual with a great passion and background in digital storytelling and social media marketing, **I am currently seeking full-time job opportunities in the related field with a flexible start date**. I am driven to develop professional skills, gain hands-on experience, and exhibit a strong desire for continuous learning and growth!
-
-Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6xrcNJoNwyxmOWYLj2h-8s7bKufqQRAZhfU/edit), email me at **minkoma2002@gmail.com**, and connect me on [LinkedIn](https://www.linkedin.com/in/minko-ma-281519255/)!
+I am a motivated and creative individual with a great passion and background in digital storytelling and social media marketing. Feel free to check out my [resume](https://drive.google.com/file/d/1Mi7N0lfIXwhvWdTz52ssgyaRTxh1T7wa/view?usp=sharing), email me at **minkoma2002@gmail.com**, and connect me on [LinkedIn](https://www.linkedin.com/in/minko-m-281519255/)!
 
 ## Experience 💁🏻‍♀️
 **UCSD STUDENT STORYTELLER** <br>
@@ -15,7 +13,7 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 * Manage the school's official [Instagram account](https://www.instagram.com/ucsdstorytellers) using Sprout Social, posting video content, monitor and analyze data.
 
 **MARKETING ASSOCIATE**<br>
-[Asian Egg Bank](https://www.asianeggbank.com/) | La Jolla, CA | Apr. 2024 – June. 2024
+[Asian Egg Bank](https://www.asianeggbank.com/) | San Diego, CA | Apr. 2024 – June. 2024, Sep. 2024 - Current
 * Cultivating a vibrant donor community through engaging social media content and event organization, leveraging digital marketing tools such as Later and Canva to create compelling content, increase brand awareness, generate leads, and drive conversion
 * Implementing SEO strategies to expand the egg donor database and enhance online presence, ensuring maximum visibility to potential donors.
 * Executing targeted email marketing campaigns using Keap and Canva to effectively reach potential donors and sustain donor engagement over time.
@@ -69,6 +67,8 @@ Feel free to check out my [resume](https://docs.google.com/document/d/1oiS40n4E6
 * [Favorite Study Spots On Campus🏫](https://www.instagram.com/p/Cn7oQQUD6-c/)
 
 * More to come!!
+
+## **Graphic Design** ✍️
 
 
 
