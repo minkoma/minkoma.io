@@ -1,11 +1,11 @@
 ## About 👋🏼
 Hi! I am Yitian Ma, and I also go by Minko. I am a recent graduate with a bachelor's degree in [Communication](https://communication.ucsd.edu/) and [International Studies- International Business](https://isp.ucsd.edu/) from [UC San Diego](https://ucsd.edu/). I'm originally from Beijing, China🇨🇳.
 
-I am a motivated and creative individual with a great passion and background in digital storytelling and social media marketing. Feel free to check out my [resume](https://drive.google.com/file/d/1Mi7N0lfIXwhvWdTz52ssgyaRTxh1T7wa/view?usp=sharing), email me at **minkoma2002@gmail.com**, and connect me on [LinkedIn](https://www.linkedin.com/in/minko-m-281519255/)!
+I am a motivated and creative individual with a great passion and background in digital storytelling and social media marketing. Feel free to check out my [resume](https://minkoma.github.io/minkoma.io/assets/resume.pdf), email me at **minkoma2002@gmail.com**, and connect me on [LinkedIn](https://www.linkedin.com/in/minko-m-281519255/)!
 
 ## Experience 💁🏻‍♀️
 **UCSD STUDENT STORYTELLER** <br>
-[UC San Diego Annual Giving](https://giving.ucsd.edu/)& [UCSD Alumni Department](https://alumni.ucsd.edu/) | La Jolla, CA | Oct. 2022 – June. 2024
+[UC San Diego Annual Giving](https://giving.ucsd.edu/) & [UCSD Alumni Department](https://alumni.ucsd.edu/) | La Jolla, CA | Oct. 2022 – June. 2024
 * Producing compelling video content through multiple channels to give alumni, students, parents, and supporters an “inside-look” at UC San Diego's rich campus life, helping to educate the UC San Diego community about the impact and importance of giving, and inspire philanthropic giving.
 * Participate in all aspects of video production to produce a steady stream of video projects, including scripting, storyboarding, filming, editing individual and/or team videos.
 * Develop fundraising initiatives to qualify, identify, and solicit special gift prospects with an emphasis on $1,000 to $25,000. Raised an impressive $1,593,858 in donations during [2023 UCSD's Day of Caring](https://ucare.ucsd.edu/pages/home-2308).
@@ -68,6 +68,8 @@ I am a motivated and creative individual with a great passion and background in 
 
 * More to come!!
 
+## **Graphic Design🖌️** 
+* Check it out [here🤗](https://minkoma.github.io/minkoma.io/assets/Design.pdf)!
 
 ## *Hobbies* 😸
 * Try different vanilla latte☕️ and jasmine milk tea🧋
