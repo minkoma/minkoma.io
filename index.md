@@ -1,7 +1,7 @@
 ## About 👋🏼
 Hi! I am Yitian Ma, and I also go by Minko. I am a recent graduate with a bachelor's degree in [Communication](https://communication.ucsd.edu/) and [International Studies- International Business](https://isp.ucsd.edu/) from [UC San Diego](https://ucsd.edu/). I'm originally from Beijing, China🇨🇳.
 
-I am a motivated and creative individual with a great passion and background in digital storytelling and social media marketing. Feel free to check out my [resume](https://minkoma.github.io/minkoma.io/assets/resume.pdf), email me at **minkoma2002@gmail.com**, and connect me on [LinkedIn](https://www.linkedin.com/in/minko-m-281519255/)!
+I am a motivated and creative individual with a great passion and background in digital storytelling and social media marketing. Feel free to check out my [resume](https://minkoma.github.io/minkoma.io/assets/Resume.pdf), email me at **minkoma2002@gmail.com**, and connect me on [LinkedIn](https://www.linkedin.com/in/minko-m-281519255/)!
 
 ## Experience 💁🏻‍♀️
 **UCSD STUDENT STORYTELLER** <br>
